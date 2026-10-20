@@ -1,0 +1,1 @@
+# shopping_malls_analysis_Mineyev
